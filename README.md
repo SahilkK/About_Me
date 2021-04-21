@@ -15,3 +15,5 @@ Unscramble and analyze the data to get a clear picture of the story it presents 
 ▶ Want to collab on awesome projects with this guy?
 
 Email me at <kde>sahilkirpekar24@gmail.com</kde>
+
+😎Connect with me on LinkedIn --> https://www.linkedin.com/in/sahil-kirpekar-0055a314b/
